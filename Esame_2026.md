@@ -1,3 +1,5 @@
+> #### Cristina Ferro
+>> ##### matricola n. 1237306
  # Areosol ad alta quota
  ## Analisi del particolato antropogenico sull'arco alpino occidentale
  (immagine satellitare dell'arco alpino oggetto di studio)
